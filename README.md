@@ -1,2 +1,2 @@
 # Crew_ai
-Test for apply
+Hey dude. Welcome to my place. (สร้างลองเทสเล่นๆ)
